@@ -5,6 +5,7 @@
 - 📫 How to reach me ...
 - 😄 Pronouns: she
 - ⚡ Fun fact: i don't have friends.
-
+- my favorite movie is harry potter.
+- i like music.
 <!---
 
